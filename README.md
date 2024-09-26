@@ -4,9 +4,9 @@
 
 ### **Kostenlose Würfel für Monopoly GO** findest du genau hier! Mit diesem Monopoly GO Hack kannst du dir innerhalb sehr kurzer Zeit, unendlich viele Würfel generieren und hast deutlich mehr Spaß wie bisher. Kauf dir alles was du brauchst um erfolgreicher und schneller in Monopoly GO zu sein!
 
-### [HIER KLICKEN](https://lookerstudio.google.com/reporting/65f8d83a-a265-4524-8971-a536abc34de2)
+### [HIER KLICKEN](https://lookerstudio.google.com/s/nOe7QBFY11o)
 
-### [HIER KLICKEN](https://lookerstudio.google.com/reporting/65f8d83a-a265-4524-8971-a536abc34de2)
+### [HIER KLICKEN](https://lookerstudio.google.com/s/nOe7QBFY11o)
 
 
 ## **Der beste Monopoly GO Hack**
